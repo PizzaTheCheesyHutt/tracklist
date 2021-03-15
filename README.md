@@ -288,3 +288,11 @@ Moderat - A New Error - https://www.youtube.com/watch?v=QpxFcMYRV08
 Moderat - Therapy - https://www.youtube.com/watch?v=EQzE3HjT_QI
 
 Maceo Plex - Learning to fly - https://www.youtube.com/watch?v=81sOz9TTmko
+
+System Of A Down - Toxicity (Official Video) - https://www.youtube.com/watch?v=iywaBOMvYLI
+
+System Of A Down - Chop Suey! (Official Video) - https://www.youtube.com/watch?v=CSvFpBOe8eY
+
+The Offspring - The Kids Aren't Alright (Official Music Video) - https://www.youtube.com/watch?v=7iNbnineUCI
+
+Uochi Toki - Spacciatore di pizza (MUCCHIO TV) - https://www.youtube.com/watch?v=dvO2PpE0aPA
