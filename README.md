@@ -280,3 +280,11 @@ B-Complex - Girl With Flower - https://www.youtube.com/watch?v=5cwDu2fwCx8
 B Complex - Winter[Full] - https://www.youtube.com/watch?v=XhmRkgloUTU
 
 Future Prophecies - September - https://www.youtube.com/watch?v=_Ix0W-TOFK8
+
+Joris Delacroix - Epoque - https://www.youtube.com/watch?v=ND2r4n_oxDQ
+
+Moderat - A New Error - https://www.youtube.com/watch?v=QpxFcMYRV08
+
+Moderat - Therapy - https://www.youtube.com/watch?v=EQzE3HjT_QI
+
+Maceo Plex - Learning to fly - https://www.youtube.com/watch?v=81sOz9TTmko
