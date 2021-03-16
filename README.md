@@ -1,5 +1,5 @@
 # tracklist
-This are a few tracks that I do really like. They are in a completely random order.
+This are a few tracks that I do really like. They are in a completely random order. When I discover or remember a song that I do really like, I will add it here, so this list will hopefully keep growing.
 
 Maybe someone else may like them too!
 
