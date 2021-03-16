@@ -296,3 +296,7 @@ System Of A Down - Chop Suey! (Official Video) - https://www.youtube.com/watch?v
 The Offspring - The Kids Aren't Alright (Official Music Video) - https://www.youtube.com/watch?v=7iNbnineUCI
 
 Uochi Toki - Spacciatore di pizza (MUCCHIO TV) - https://www.youtube.com/watch?v=dvO2PpE0aPA
+
+Piotta - Supercafone - https://www.youtube.com/watch?v=pxwXMweboi0
+
+PIOTTA - LA GRANDE ONDA - https://www.youtube.com/watch?v=eX5VtdlRHGs
