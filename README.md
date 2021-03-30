@@ -300,3 +300,5 @@ Uochi Toki - Spacciatore di pizza (MUCCHIO TV) - https://www.youtube.com/watch?v
 Piotta - Supercafone - https://www.youtube.com/watch?v=pxwXMweboi0
 
 PIOTTA - LA GRANDE ONDA - https://www.youtube.com/watch?v=eX5VtdlRHGs
+
+Eric Prydz - Opus (OUT NOW) - https://www.youtube.com/watch?v=iRA82xLsb_w
