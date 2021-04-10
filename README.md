@@ -312,3 +312,15 @@ Alex Gaudino feat. Crystal Waters - Destination Calabria [Explicit Version] [Off
 Epoque - https://www.youtube.com/watch?v=ND2r4n_oxDQ
 
 Bag Raiders - Shooting Stars (Official Video) - https://www.youtube.com/watch?v=feA64wXhbjo
+
+MGMT - Kids (Video with Fire Intro) - https://www.youtube.com/watch?v=fe4EK4HSPkI
+
+Technotronic - Pump Up The Jam (Official Video) - https://www.youtube.com/watch?v=9EcjWd-O4jI
+
+2 UNLIMITED - Get Ready (Orchestral Mix) - https://www.youtube.com/watch?v=Vwurod1Ry9I
+
+Modjo - Lady (Hear Me Tonight) (Official Video) - https://www.youtube.com/watch?v=mMfxI3r_LyA
+
+Alizée - Moi... Lolita (Clip Officiel HD) - https://www.youtube.com/watch?v=QpbHdIrtpNo
+
+M83 'Midnight City' Official video - https://www.youtube.com/watch?v=dX3k_QDnzHE
