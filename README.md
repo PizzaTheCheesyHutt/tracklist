@@ -302,3 +302,9 @@ Piotta - Supercafone - https://www.youtube.com/watch?v=pxwXMweboi0
 PIOTTA - LA GRANDE ONDA - https://www.youtube.com/watch?v=eX5VtdlRHGs
 
 Eric Prydz - Opus (OUT NOW) - https://www.youtube.com/watch?v=iRA82xLsb_w
+
+New Order - Blue Monday (Official Lyric Video) - https://www.youtube.com/watch?v=c1GxjzHm5us
+
+This is Sparta! Last techno remix - https://www.youtube.com/watch?v=rvYZRskNV3w
+
+Alex Gaudino feat. Crystal Waters - Destination Calabria [Explicit Version] [Official Video] - https://www.youtube.com/watch?v=Kq4OtRsdXls
