@@ -123,8 +123,6 @@ Haddaway - What Is Love - https://www.youtube.com/watch?v=HEXWRTEbj1I
 
 Klangkarussell - Sonnentanz - https://www.youtube.com/watch?v=JdeApaHKeGc
 
-MGMT- Kids - https://www.youtube.com/watch?v=w7JthgTMHDU
-
 Avicii - Levels - https://www.youtube.com/watch?v=_ovdm2yX4MA
 
 Bounce (Radio Edit, Karaoke Originally performed by Calvin Harris) https://www.youtube.com/watch?v=AZdWXx8reQM
