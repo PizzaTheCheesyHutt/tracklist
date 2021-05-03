@@ -324,3 +324,5 @@ Alizée - Moi... Lolita (Clip Officiel HD) - https://www.youtube.com/watch?v=Qpb
 M83 'Midnight City' Official video - https://www.youtube.com/watch?v=dX3k_QDnzHE
 
 Calibre - Even If (Original Mix) - https://www.youtube.com/watch?v=tN9RhR8E-D0
+
+The Chemical Brothers - The Darkness That You Fear (Official Video) - https://www.youtube.com/watch?v=b-mGA4V2LK0
